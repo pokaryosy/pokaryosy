@@ -1,5 +1,5 @@
-### [mypage🗿]()
-### [instagram🐧](https://www.instagram.com/pokaryosy/)
+### [mypage 🗿]()
+### [instagram 🐧](https://www.instagram.com/pokaryosy/)
 
 
 <!--
