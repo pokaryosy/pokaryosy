@@ -1,4 +1,4 @@
-### [mypage 🗿]()
+### [mypage 👀]()
 ### [instagram 🐧](https://www.instagram.com/pokaryosy/)
 
 
