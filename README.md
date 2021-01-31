@@ -1,4 +1,4 @@
-### [mypage.](https://pokaryosy.github.io/portfolio/)
+### [mypage.](https://www.pokaryosy.com)
 ### [instagram.](https://www.instagram.com/pokaryosy/)
 
 
